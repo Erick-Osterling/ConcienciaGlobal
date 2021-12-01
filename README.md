@@ -1,0 +1,2 @@
+# ConcienciaGlobal
+Geopolitica
